@@ -28,8 +28,12 @@ Fangen wir mal vorne an ^^
 ```
 ---
 ```
-Mein TG ist 130€ die Stunde, oder 600€ die Nacht (~8Std). AV ohne Kondom ist absolutes No-Go. Für fast alles andere gilt: Einfach offen ansprechen, ich bin sexuell gesehen sehr aufgeschlossen 🙂 
-```
+Mein TG ist 130€ die Stunde, oder 600€ die Nacht (~8Std). 
+
+AV ohne Kondom ist absolutes No-Go. 
+
+Ansonsten gilt: Egal ob aktiv (16/4), passiv, soft, hart: 
+Einfach offen ansprechen, ich bin sexuell gesehen sehr aufgeschlossen 🙂 ```
 ---
 ```
 Du tut mir leid aber für Dates unter 1Std bin ich die Falsche. Wie sag ichs am besten... dafür gibts den Puff 🤭
