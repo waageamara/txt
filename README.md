@@ -1,6 +1,17 @@
 ## Floskeln
 
 ```
+Hallo 🙂
+```
+---
+
+```
+Super, danke. Und dir? 🙂
+Wie kann ich helfen? 😜
+```
+---
+
+```
 Fangen wir mal vorne an ^^
 ```
 ---
