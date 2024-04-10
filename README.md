@@ -44,7 +44,8 @@ Speicher dir das irgendwo, dann bist du immer up2date :-)
 ```
 Mein TG ist 130/Std. No-Go ist AV-Ohne,
 über fast alles andere können wir einfach offen sprechen. 
-Woran hast du gedacht? (Auch zeitlich)  
+
+Möchtest du mich denn heute treffen? Woran hast du zeitlich gedacht?
 ```
 ---
 
