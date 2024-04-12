@@ -27,6 +27,12 @@ Ja, gern. Woran hast du denn zeitlich gedacht?
 ---
 
 
+```
+Ich frag mal anders: Wann möchtest du mich denn treffen? 😊
+```
+---
+
+
 ## Location
 
 ```
@@ -53,9 +59,6 @@ Woran hast du denn zeitlich gedacht?
 ```
 ---
 
-```Ich frag mal anders: Wann möchtest du mich denn treffen? 😊```---
-
-
 ```
 Mein TG ist 130€ die Stunde, oder 600€ die Nacht (~8Std). 
 AV ohne Kondom ist absolutes No-Go. 
@@ -74,6 +77,12 @@ Was für "uns" Spaß macht finden wir doch eh erst spontan gemeinsam raus 😉
 ```
 No-Go ist AV-Ohne, über fast alles andere können wir einfach offen sprechen. 
 Woran hast du gedacht? (Auch zeitlich)  
+```
+---
+
+```
+Mach dir solche Gedanken nicht.  Ich spiele nicht irgendein Programm ab, und will das auch garnicht.
+Es geht um Sex. Sex handelt von dem, was 2 Menschen spontan gefällt. Bleib einfach du selbst und lass dich drauf ein. Alles andere wär dämlich 🙂
 ```
 ---
 
