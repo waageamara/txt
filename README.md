@@ -21,6 +21,10 @@ Wie kann ich helfen? 😘
 ```
 ---
 
+```
+Ja, gern. Woran hast du denn zeitlich gedacht?
+```
+---
 
 
 ## Location
@@ -45,7 +49,7 @@ Speicher dir das irgendwo, dann bist du immer up2date :-)
 Mein TG ist 130/Std. No-Go ist AV-Ohne,
 über fast alles andere können wir einfach offen sprechen. 
 
-Möchtest du mich denn heute treffen? Woran hast du zeitlich gedacht?
+Woran hast du denn zeitlich gedacht?
 ```
 ---
 
