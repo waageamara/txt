@@ -53,6 +53,9 @@ Woran hast du denn zeitlich gedacht?
 ```
 ---
 
+```Ich frag mal anders: Wann möchtest du mich denn treffen? 😊```---
+
+
 ```
 Mein TG ist 130€ die Stunde, oder 600€ die Nacht (~8Std). 
 AV ohne Kondom ist absolutes No-Go. 
