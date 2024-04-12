@@ -86,6 +86,12 @@ Es geht um Sex. Sex handelt von dem, was 2 Menschen spontan gefällt. Bleib einf
 ```
 ---
 
+```
+Keine Sorge, ich weiss was ich tue 😉
+```
+---
+
+
 ## Grenzen
 
 ```
@@ -109,6 +115,14 @@ https://linktr.ee/Jennifer.TS
 
 
 ## Abwürgen
+
+
+```
+Sorry, aber wir sprengen gerade ein wenig den Rahmen für solche Chats 😉
+
+Gibst du mir Bescheid, wenn du weißt wann du bei mir sein möchtest?
+```
+---
 
 ```
 Kein Thema, aber dann meld dich dazu bitte nochmal. 
