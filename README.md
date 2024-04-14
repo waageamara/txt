@@ -167,7 +167,7 @@ Bin ja keine Bestellpizza 🤭
 ## Zeit
 
 ```
-Klingt easy. Gib mir bescheid sobald du was konkretes sagen kannst. Weil, nen Termin brauchen wir schon 😉
+Kein Thema. Gib mir bescheid sobald du was konkretes sagen kannst. Weil, nen Termin brauchen wir schon 😉
 ```
 ---
 
