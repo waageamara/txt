@@ -32,6 +32,13 @@ Ich frag mal anders: Wann möchtest du mich denn treffen? 😊
 ```
 ---
 
+```
+Zum Thema Reisekosten: Für kürzere Strecken berechne ich da keine Reisezeit, sondern halt bloss was das Uber kostet. Du kannst das auch easy selber online checken, einfach hier das Ziel anpassen:
+
+https://t.ly/KViir
+```
+---
+
 
 ## Location
 
