@@ -43,9 +43,9 @@ https://t.ly/KViir
 ## Location
 
 ```
-Ich bin heute im Flowers Hotel in Essen, Frohnhauser Str. 55 erreichbar 😊
-
-https://www.google.com/maps?newwindow=1&sca_esv=383ef31e719fe62f&sxsrf=ACQVn0_a7CW0QWIddtXB8d82SUa8upR9FQ:1712765641458&lsig=AB86z5UnleoyG41zig7QVFluhJLx&biw=1326&bih=874&dpr=1.25&um=1&ie=UTF-8&fb=1&gl=de&sa=X&geocode=KZtHX81fw7hHMUm95uIGGQt2&daddr=Frohnhauser+Str.+55,+45127+Essen
+Ich bin heute im McDreams Hotel Essen-City
+Altendorfer Str. 220, 45143 Essen
+https://maps.app.goo.gl/3LdvJU85nW4hSDPt6
 ```
 ---
 
